@@ -1,1 +1,1 @@
-dont even
+JUst starting out at game crteating
