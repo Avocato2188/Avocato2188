@@ -1,1 +1,3 @@
-JUst starting out at game crteating
+Just starting out at game crteating
+
+I like cats
